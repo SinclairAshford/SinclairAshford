@@ -1,4 +1,5 @@
 ## Hi there 👋
+kinda dumb and anxietic 🙂
 
 <!--
 **SinclairAshford/SinclairAshford** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
